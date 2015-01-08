@@ -1,0 +1,5 @@
+<h2>Genealogical Section</h2>
+<p>What follows is the original explanation of the records and numbering system, then the modern numbering based on Ahnentafel for direct ancestors.</p>
+<br><br>
+<h3>Original Front Matter</h3>
+<p>This section is made up of sheets of data, each of which represents a complete line from an immigrant ancestor (in a few cases some pre-immigrant ancestors also) down through the woman who married into another line. Each generation on a sheet is numbered according to the following system: number I represents our children; number II represents ourselves; number III our parents and so on. Each ancestor's name is underlined in red in order to facilitate tracing down any line or lines. Under the name of each ancestor is given such of his or her vital data as could be found and any further information which we considered of value or interest. At the bottom of each sheet is underlined in red the name of the family into which the last named person on the sheet married and hence the family name in which the particular strain is further carried.</p>
