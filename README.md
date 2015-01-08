@@ -8,11 +8,11 @@
 <p>We can only hope that this will be of some interest to you.</p>
 <br>
 <p>Rolla, Missouri, December 1934.</p>
-<p>Elbridge ALvah Goodhue</p>
+<p>Elbridge Alvah Goodhue</p>
 <p>& Ruth Veino Goodhue</p>
 <br><br>
 <h3><u>Preface to the Second Edition</u></h3>
-<p>This second edition represents the results of eighteen months' research in our attempt to work out the genealogical lines of our children. It represents an enlargement and revision of the first draft. Two sheets have been removed, the Dummer and Hammond lines having been found to be incorrect. Forty eight sheets have been completely rewritten and data has been added to some other sheets. The following new sheets have been added: Adkins; ALlen (Andrew); ALlen (William); Ames; ANdrews; Bascom; Bibble; Bidwell; Boardman; Bridges; Burge; Chickering; Colton (Colton-Bliss); Dane; Dean; Desborough; Edson; Everden; Field; Forbes; Gill; Gilman (Richard); Goodale (Richard); Gray; Griswold; Hatch; Hills (William); Holcomb; Holt (Holt-Gray); Holt (Holt-Peabody); Humphrey; Hunt (Peter); Ingalls; Janes; Jones; Kilbourne; King; Lewis; Lovejoy; Mrsh (Marsh-Buck); Marshfield; Meakins; Morrill (Morrill-Webster); Osgood (John); Osgood (Christopher); Otis; Paine; Peabody; Pellett; Russ; Smith (Smith-Hunt); Smith (Smith-Viall); Smith (Smith-Treat); Spencer; Torrey; Treat; Viall; Webster (Webster-Bagley; Whale; Wickham; Wilcox; Willis.<p>
+<p>This second edition represents the results of eighteen months' research in our attempt to work out the genealogical lines of our children. It represents an enlargement and revision of the first draft. Two sheets have been removed, the Dummer and Hammond lines having been found to be incorrect. Forty eight sheets have been completely rewritten and data has been added to some other sheets. The following new sheets have been added: Adkins; ALlen (Andrew); ALlen (William); Ames; Andrews; Bascom; Bibble; Bidwell; Boardman; Bridges; Burge; Chickering; Colton (Colton-Bliss); Dane; Dean; Desborough; Edson; Everden; Field; Forbes; Gill; Gilman (Richard); Goodale (Richard); Gray; Griswold; Hatch; Hills (William); Holcomb; Holt (Holt-Gray); Holt (Holt-Peabody); Humphrey; Hunt (Peter); Ingalls; Janes; Jones; Kilbourne; King; Lewis; Lovejoy; Mrsh (Marsh-Buck); Marshfield; Meakins; Morrill (Morrill-Webster); Osgood (John); Osgood (Christopher); Otis; Paine; Peabody; Pellett; Russ; Smith (Smith-Hunt); Smith (Smith-Viall); Smith (Smith-Treat); Spencer; Torrey; Treat; Viall; Webster (Webster-Bagley; Whale; Wickham; Wilcox; Willis.<p>
 <p>Rolla, Missouri, May 1935.<p>
 <br><br>
 <h3><u>Preface to the Third Edition</u></h3>
